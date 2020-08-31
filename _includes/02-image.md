@@ -1,1 +1,1 @@
-![Image of cat](https://4.bp.blogspot.com/-TiMYNOT8xJ4/UlqSOyjvT-I/AAAAAAAAAH4/qYvsU0w1oW4/s1600/5.jpg)
+![Image of a cat](https://4.bp.blogspot.com/-TiMYNOT8xJ4/UlqSOyjvT-I/AAAAAAAAAH4/qYvsU0w1oW4/s1600/5.jpg)
